@@ -99,3 +99,4 @@ B.Tech Information Technology Student
 AI/ML Intern @ InternPe
 
 GitHub: https://github.com/mageshsugumaran2123
+LinkedIn : https://www.linkedin.com/in/magesh-sugumaran-9429a52a7/
